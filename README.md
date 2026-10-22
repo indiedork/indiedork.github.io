@@ -1,0 +1,2 @@
+# indiedork.github.io
+O BOI TS SO TUFF NGL HAHA GGEZ NO CAP JS STR8 UP BUSSIN BRUH 😂😂😂😂😂😂😂
